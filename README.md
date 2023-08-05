@@ -1,1 +1,0 @@
-# takukana02
